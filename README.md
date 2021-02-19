@@ -1,1 +1,1 @@
-# full
+# Map & Chinese
